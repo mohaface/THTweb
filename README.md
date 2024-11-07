@@ -52,3 +52,4 @@ screen ./Autolaunch
 ▪️ ویرایش کنندگان : @Mhero , @Mr_SinaNik ❤️
 
 # Good Luck :)
+<a referrerpolicy='origin' target='_blank' href='https://trustseal.enamad.ir/?id=544609&Code=ZPcsAoae0pDYe20gBevMylOL6dRoLon5'><img referrerpolicy='origin' src='https://trustseal.enamad.ir/logo.aspx?id=544609&Code=ZPcsAoae0pDYe20gBevMylOL6dRoLon5' alt='' style='cursor:pointer' code='ZPcsAoae0pDYe20gBevMylOL6dRoLon5'></a>
